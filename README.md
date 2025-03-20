@@ -28,4 +28,17 @@
 
 <img src="https://64.media.tumblr.com/6e5430bbc5c883155a6310b4181d7287/803df223bef42c33-e5/s2048x3072/a857462b6c2545b7735b06735f192d42d7a1239c.pnj">
 
+<sup>[other info]</sup>
+<br> - we <i>very</i> rarely can go non-verbal because of one of our alters being typically non-verbal
+<br> - we're hyperromantic and talk about our partner system a lot!! sorry if it's annoying
+<br> - uhhh explodes!!
+
+<img src="https://64.media.tumblr.com/6e5430bbc5c883155a6310b4181d7287/803df223bef42c33-e5/s2048x3072/a857462b6c2545b7735b06735f192d42d7a1239c.pnj">
+
+<sup>[other info]</sup>
+<br> divider — [1](https://www.tumblr.com/strangergraphics/765530810893942784/moon-stars-themed-dividers-please-like-and)
+<br> pixels — [1 - 5](https://pixels.crd.co/)
+
+<img src="https://64.media.tumblr.com/6e5430bbc5c883155a6310b4181d7287/803df223bef42c33-e5/s2048x3072/a857462b6c2545b7735b06735f192d42d7a1239c.pnj">
+
 this was last updated on 3/13/2025
