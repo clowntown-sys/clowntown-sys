@@ -32,6 +32,7 @@
 <br> - we <i>very</i> rarely can go non-verbal because of one of our alters being typically non-verbal
 <br> - we're hyperromantic and talk about our partner system a lot!! sorry if it's annoying
 <br> - uhhh explodes!!
+<br> - the code on this thing is kinda messy uhmh m </3
 
 <img src="https://64.media.tumblr.com/6e5430bbc5c883155a6310b4181d7287/803df223bef42c33-e5/s2048x3072/a857462b6c2545b7735b06735f192d42d7a1239c.pnj">
 
