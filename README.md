@@ -1,16 +1,21 @@
-<sup>[read me]</sup>
-<br>hello hello!
-<br>welcome into <b>clowntown</b>!!
+<h4>read me ::</h4>
+hello hello!
+<br>welcome into <b>clowntown</b>!<i>!</i>
+<br>
+<br><p align="center"><img src="https://64.media.tumblr.com/6e5430bbc5c883155a6310b4181d7287/803df223bef42c33-e5/s500x750/c9fb696d519e8843340add30b437713f100ce8f2.pnj"></p>
 
-<br><sup>[collective information]</sup>
-<br>collectively referred to as "kenzie"
-<br>collectively uses <b>he/they</b>, but any pronouns work just fine!!
+<sup><b>collectively;</b></sup>
+> we respond to "kenzie"\
+> we use he / they / any pronouns
 
-<br><sup>[frequent fronters]</sup>
-<br><b>[kenzie](https://www.tumblr.com/clowntown-sys)</b> — he/they/any
-<br><b>[boombox](https://rentry.co/bringbacksoundids)</b> — he/hy/any neopronouns
-<br><b>[racket](https://rentry.co/razoringrocketz)</b> — he/she/vae/ix/they/it
-<br><b>[medkit](https://rentry.co/lostaidkit)</b> — he/any
-<br><b>[rocky/rochas](https://rentry.co/nosois-host)</b> — he/him
+<br><sup><b>frequent fronters;</b></sup>
+> <b>[kenzie](https://clowntowncollective.neocities.org/alterlist#top)</b> — he / they / any (frontstuck)\
+> <b>[boombox / ritchie](https://rentry.co/bringbacksoundids)</b> — he / hy / wy / byte  [+](https://pronouns.cc/@clowntown-sys/boombox)\
+> <b>[racket / max](https://rentry.co/razoringrocketz)</b> — they / he / vae / ix / it  [+](https://pronouns.cc/@clowntown-sys/racket)\
+> <b>[medkit / doc](https://rentry.co/lostaidkit)</b> — he / any\
+> <b>[rocky / rochas](https://rentry.co/nosois-host)</b> — he / 🪾 / 🌲 / 🌱 [+](https://pronouns.cc/@clowntown-sys/rochas)\
+> <b>[seven / patton](https://clowntowncollective.neocities.org/c00ldadd)</b> — he / him
 
-<br><sup>this was last updated on 5/13/2025</sup>
+<br><p align="center"><img src="https://64.media.tumblr.com/6e5430bbc5c883155a6310b4181d7287/803df223bef42c33-e5/s500x750/c9fb696d519e8843340add30b437713f100ce8f2.pnj"></p>
+<br><sup>[you can learn more about us on our neocities !<i>!</i>](https://clowntowncollective.neocities.org/)</sup>
+<br><sup>this was last updated on 7/7/2025</sup>
