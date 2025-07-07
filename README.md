@@ -10,7 +10,7 @@ hello hello!
 
 <br><sup><b>frequent fronters;</b></sup>
 > <b>[kenzie](https://clowntowncollective.neocities.org/alterlist#top)</b> — he / they / any (frontstuck)\
-> <b>[boombox / ritchie](https://rentry.co/bringbacksoundids)</b> — he / hy / wy / byte  [+](https://pronouns.cc/@clowntown-sys/boombox)\
+> <b>[boombox / ritchie](https://clowntowncollective.neocities.org/bringbacksoundids)</b> — he / hy / wy / byte  [+](https://pronouns.cc/@clowntown-sys/boombox)\
 > <b>[racket / max](https://rentry.co/razoringrocketz)</b> — they / he / vae / ix / it  [+](https://pronouns.cc/@clowntown-sys/racket)\
 > <b>[medkit / doc](https://rentry.co/lostaidkit)</b> — he / any\
 > <b>[rocky / rochas](https://rentry.co/nosois-host)</b> — he / 🪾 / 🌲 / 🌱 [+](https://pronouns.cc/@clowntown-sys/rochas)\
