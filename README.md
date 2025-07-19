@@ -18,4 +18,4 @@ hello hello!
 
 <br><p align="center"><img src="https://64.media.tumblr.com/6e5430bbc5c883155a6310b4181d7287/803df223bef42c33-e5/s500x750/c9fb696d519e8843340add30b437713f100ce8f2.pnj"></p>
 <br><sup>[you can learn more about us on our neocities !<i>!</i>](https://clowntowncollective.neocities.org/)</sup>
-<br><sup>this was last updated on 7/7/2025</sup>
+<br><sup>this was last updated on 7/18/2025</sup>
